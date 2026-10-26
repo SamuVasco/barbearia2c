@@ -1,1 +1,1 @@
-Lading page da Barbearia 2C - 
+Lading page da Barbearia 2C -- 
